@@ -8,7 +8,7 @@
 - 🌱 Always learning something new
 
 ## 📫 Contact
-- Discord: `your_discord`
+- Discord: `caotri7`
 - Community: LuckyVN
 
 ---
